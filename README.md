@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Alidamaj
+- 👀 I’m interested in Coding 0️⃣1️⃣
